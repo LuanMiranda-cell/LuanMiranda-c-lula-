@@ -28,7 +28,7 @@
 
 - [LinkedIn](www.linkedin.com/in/luan-oliveira-0b5a7b37b)  
 - [GitHub](https://github.com/LuanMiranda-cell)  
-- ✉️ Email: seuemail@email.com  
+- ✉️ Email: luanmiranda517@gmail.com
 
 ---
 
